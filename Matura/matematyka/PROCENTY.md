@@ -9,6 +9,7 @@ Ważne 1,3x to nowa cena traktujemy ją jako zwykłe X, czyli obniżając cene o
 ZADANIE CIĘŻKIE
 
 ![[Pasted image 20240224124733.png]]
+Kiedy są same literki litera jest jedynkąQ
 
 ![[Pasted image 20240224125543.png]]
  5/100 x to liczba podstawowa, gdzie zwiększamy ją o p% tej liczby by otrzymać 15%
