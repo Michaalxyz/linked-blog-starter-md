@@ -70,4 +70,27 @@ aby obliczyć pozostałe pierwiastki ułamkowe dzielimy powstałe pierwiastki pr
 
 #### SCHEMAT HORNERA(DZIELENIE WIELOMIANÓW)
 ![[Pasted image 20240220210446.png]]
+Kiedy brakuje x to tez wstawiamy 0 
 
+NIERÓWNOŚCI WIELOMIANOWE 
+![[Pasted image 20240227211646.png]]
+
+- Kiedy x jest w potędze najwyższej  wykres rysujemy od góry
+- Trzeba uprządkować na początku wielomian.
+
+
+Zadanie z parametrem
+![[Pasted image 20240227212311.png]]
+
+WZÓR OGÓLNY WIELOMIANU $ax^n$
+
+
+zad 26/225
+![[Pasted image 20240227212820.png]]
+
+
+zad 25/222
+
+![[Pasted image 20240227213002.png]]
+
+Jeśli po lewej stronie są 3 pierwiastki to kiedy szukamy pierwiastkow po prawej stronie to zakladamy ze jest ich tyle samo.
