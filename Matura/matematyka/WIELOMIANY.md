@@ -94,3 +94,12 @@ zad 25/222
 ![[Pasted image 20240227213002.png]]
 
 Jeśli po lewej stronie są 3 pierwiastki to kiedy szukamy pierwiastkow po prawej stronie to zakladamy ze jest ich tyle samo.
+
+
+ROZWIAZYWANIE WIELOMIANU  Z PARAMETREM M
+![[Pasted image 20240229201629.png]]
+
+
+DOWÓD 
+![[Pasted image 20240229202133.png]]
+$(a-b)^2$ to to samo co $(b-a)^2$, dlatego możemy zamieniać je miejscami
