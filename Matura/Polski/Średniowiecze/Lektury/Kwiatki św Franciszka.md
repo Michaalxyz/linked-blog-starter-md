@@ -1,4 +1,4 @@
-Kwiatki - to symbol cech i dobrych uczynków świętego.
+Kwiatki - to symbol cech i dobrych uczynków świętego. Epizody z zycia swiętego.
 
 Kwiatki świętego Franciszka opisują w sposób prosty, codzienne sytuacje z życia zakonnego.
 
