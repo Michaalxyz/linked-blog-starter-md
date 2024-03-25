@@ -27,3 +27,14 @@ Do you make a very good pizza - Czy robisz dobrą pizze?
 Zwroty charakterystyczne dla tego czasu: often, always, hardly ever, never, seldom(rzadko) itp.
 
 
+
+Wstęp 
+Arg 1 
+Arg 2 za I przeciw
+Zakonczenie
+Rozprawka ale z moim zdaniem 
+Wstęp 
+Arg 1
+Arg 2
+Zakonczenie
+

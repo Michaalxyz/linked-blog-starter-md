@@ -6,7 +6,7 @@ Rodzaje mitów
 - kosmogeniczne - o powstaniu świata
 - genealogiczne - o rodach starożytnych
 
-https://skupksiazek.pl/blog/mit-o-heraklesie-streszczenie-plan-wydarzen-opracowanie/ WAZNE OPRACOWAC
+
 ###### MIT O 4 WIEKACH LUDZKOŚCI
 
 Wiek złoty - Na ziemi jest pokój. Świat jest żyzny oraz brak wojen.

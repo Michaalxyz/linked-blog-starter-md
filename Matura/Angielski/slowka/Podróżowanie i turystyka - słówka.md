@@ -6,19 +6,19 @@ breathtaking view - zapierający dech widok
 
 camping holiday - wakacje pod namiotem
 
-city break - wakacje w miescie
+**city break - wakacje w miescie**
 
 crowded beaches - zatłoczona plaża
 
-cruise  - rejs wycieczkowy
+==cruise  - rejs wycieczkowy==
 
-downside - wada
+==downside - wada==
 
 fine weather - dobra pogoda
 
 go backpacking - jechać na wakacje z plecakiem
 
-go hitchhiking - podróżować autosopem
+==go hitchhiking - podróżować autosopem==
 
 go kayaking - jechać na kajaki
 
@@ -44,11 +44,11 @@ sea view - widok na morze
 
 see sb off - odprowadzać kogoś
 
-sunbathe - opalać się 
+==sunbathe - opalać się== 
 
 tourism - turystyka
 
-upside - zaleta
+==upside - zaleta==
 
 visitor - zwiedzający
 
@@ -58,21 +58,21 @@ bed and breakfest - sniadanie z pokojem
 
 campsite - pole namiotowe
 
-caravan - przyczepa kempingowa
+==caravan - przyczepa kempingowa==
 
-chalet - domek letniskowy
+==**chalet - domek letniskowy**==
 
-guest house - pensjonat
+==guest house - pensjonat==
 
 luxury hotel - luksusowy hotel
-
+``
 tent - namiot
 
 villa - letni dom do wynajęcia
 
-youth hostel - schronisko młodziezowe
+==youth hostel - schronisko młodziezowe==
 
-air conditioning - klimatyzacja 
+==air conditioning - klimatyzacja== 
 
 check in/out - zameldować się / wymeldować
 
@@ -86,7 +86,7 @@ stay at hotel - zatrzymać się w hotelu.
 
 across the street - przez ulice
 
-along the river - wzdłuż rzeki
+==along the river - wzdłuż rzeki==
 
 ask the way - zapytać o droge?
 
@@ -100,31 +100,31 @@ on the corner - na rogu
 
 on your left - po lewej
 
-toward - w kierunku
+==toward - w kierunku==
 
 turn round - zawrócić
 
-arrival - przyjazd 
+==arrival - przyjazd== 
 
-aisle seat - miejsce w przejsciu
+==aisle seat - miejsce w przejsciu==
 
 boarding pass - karta pokładowa
 
 book a low-cost ticket - zarezerwować bilet tanią linią 
 
-depart from - odjeżdżać 
+==depart from - odjeżdżać== 
 
-departure - odlot
+==departure - odlot==
 
 drive a couch - prowadzić autokar
 
 drive a lorry - prowadzić ciężarówke
 
-fare - opłata za przejazd
+==fare - opłata za przejazd==
 
 ferry - prom 
 
-fly a plane - pilotować
+==fly a plane - pilotować==
 
 get off the plane - wysiadać z samolotu
 
@@ -138,9 +138,9 @@ jet lag - zmęcznie przez zmiane stref
 
 land - lądować 
 
-luggage - bagaż
+==luggage - bagaż==
 
-means of transport - środki transportu
+==means of transport - środki transportu==
 
 peron - platform 
 
@@ -148,7 +148,7 @@ return ticket - bilet w obie strony
 
 suitcase - walicka
 
-take off - startować
+==take off - startować==
 
 taxi rank - postój taksówek
 
@@ -156,25 +156,25 @@ timetable - rozkład lotów
 
 underground - metro
 
-vehicle - pojazd
+==vehicle - pojazd==
 
-brake - hamować
+==brake - hamować==
 
-lane - pas jezdni
+==lane - pas jezdni==
 
-pavement - chodnik
+==pavement - chodnik==
 
-pedestrian - pieszy
+==pedestrian - pieszy==
 
 peak hour - godziny piku
 
 stop light - czerowne światło
 
-zebra crossing - pasy
+==zebra crossing - pasy==
 
 traffic lights - światła
 
-be knocked down - potrącić
+==be knocked down - potrącić==
 
 seasick - choroba morska
 
@@ -184,28 +184,29 @@ car crash - wypadek samochodowy
 
 double-booked - podwójnie zarezerwowany
 
-food poisoning - zatrucie pokarmowe
+==food poisoning - zatrucie pokarmowe==
 
-road accident - wypadek samochody
+==road accident - wypadek samochody==
 
 sink - tonąć 
 
 medical treatment - pomoc medyczna
 
-trace - ślad 
+==trace - ślad== 
 
-trail - szlak
+==trail - szlak==
 
-shelter - schronienie
+==shelter - schronienie==
 
-abandon - porzucić
+==abandon - porzucić==
 
-footprints - ślady słówek
+==footprints - ślady stop== 
 
-voyage - długa podróż
+==voyage - długa podróż==
 
-sunstroke - udar słoneczny
+==sunstroke - udar słoneczny==
 
 emergancy - sytuacja awaryjna
 
+Go past - przejść obok
 

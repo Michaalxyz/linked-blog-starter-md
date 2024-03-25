@@ -2,7 +2,7 @@
   
 W Rozmowie mistrza Polikarpa, śmierć wspomina o tym, że wobec o śmierci człowiek jest bezradny, nie ważne z jakiej jest warstwy społecznej(Został użyty motyw Dance Macabre).
 
-Polikarp jest naiwny, ponieważ, że śmierci można uniknąć więc chce ją zobaczyć w całej okazałosci. Jego oczom ukazuje się rozkładający trup kobiety(naturalizm). 
+Polikarp jest naiwny, ponieważ, że śmierć można uniknąć więc chce ją zobaczyć w całej okazałosci. Jego oczom ukazuje się rozkładający trup kobiety(naturalizm). 
 
 Śmierć w utoworze ma charakter groteskowy. Groza wyglądu jest łagodzona przez słabości i komizm postaci. Często zmienia swoje zachowania, ironizuje zachowania ludzi średniowiecza. Jest energiczna.
 

@@ -41,3 +41,12 @@ Iliada to przede wszystkim **utwór o rycerskiej dzielności**. Bohaterowie tro
 GOTOWOŚĆ DO POŚWIĘCENIA JEST PRZEJAWEM HEROIZMU ALE RÓWNIEŻ GOTOWOŚCIĄ DO CIERPIENIA. PODOBNY PRZYKŁAD HEROIZMU A ZARAZEM CIERPIENIA JEST  "ZDĄŻYĆ PRZED PANEM BOGIEM".
 (PIELEGNIARKI ZABIJAŁY DZIECI ZEBY NIE ZGINELY Z RĄK FASZYSTÓW)
 (ZBIOROWE SAMOBÓJSTWO PRZEZ POWSTAŃCÓW)
+
+
+
+
+
+Jak globalizacja wyglada w krajach 3 świata 
+
+W jaki sposób globalizacja przejawia sie w kulturze
+

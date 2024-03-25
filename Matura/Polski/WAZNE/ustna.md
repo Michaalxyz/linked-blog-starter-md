@@ -10,3 +10,10 @@ ROK BYŁ W PARYZU NA PRAKTYKACH W PARYSKIM SZPITALU
 ODCZYTYWAŁ SPRAWY NA TEMAT HIGIENY CZYLI O TYM JAK POWINNO POPRAWIĆ SIĘ HIGIENIE U BIEDOTY//odczyt negatywnie przyjęty przez srodowisko lekarzy//Medycyna to interes jak każdy inny a biedota nie ma jak płacić
 
 Marzenia zależne od pienieędzy
+
+
+
+
+Obraz (pierwsza postac jest załamana sugerując nieszczęście, kolorystyka świadcząca o smutnej atmosferze zdjęcia)
+
+Zbrodnia i kara()
