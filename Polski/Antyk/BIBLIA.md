@@ -60,7 +60,7 @@ Motyw(Pycha)
 ###### Ofiara Abrahama
 
 Abraham miał złożyć swojego syna Izaaka w ofiarze. Abraham potwierdzając swoją wiarę został obdarzony potomstwem liczniejszym niz gwiazdy na niebie. 
-Motywy(Wynagrodzenie, wiara)
+Motywy(Wynagrodzenie, wiara, zdolnosc czlowieka, człowiek konstruktor)
 
 ##### Co to są PSALMY
 

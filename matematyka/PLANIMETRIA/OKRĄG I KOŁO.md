@@ -49,3 +49,5 @@ WAŻNE ODLEGŁOŚĆ PUNKTU DO STYCZNEJ JEST ZAWSZE TAKA SAMA
 W przykładzie 5 stosujemy twierdzenie talesa
 ![[Pasted image 20240303194147.png]]
 
+
+![[Pasted image 20240328173408.png]]

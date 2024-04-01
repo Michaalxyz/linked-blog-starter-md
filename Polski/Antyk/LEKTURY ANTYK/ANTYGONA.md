@@ -1,3 +1,4 @@
+Sofokles
 
 Antygona jest to dramat tragiczny(Kontynuuje on ciążące na rodzie labdakidów fatum)
 

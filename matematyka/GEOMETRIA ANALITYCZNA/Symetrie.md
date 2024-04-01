@@ -8,3 +8,7 @@ Symteria względem środka układu współrzędnych (Obie współrzędne zmienia
 ![[Pasted image 20240322212251.png]]
 
 Symetria prostej względem układu współrzędnych jest zawsze równoległa
+
+
+
+![[Pasted image 20240328170837.png]]
