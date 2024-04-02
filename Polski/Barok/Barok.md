@@ -2,7 +2,7 @@
 
 Barocco - Perła o nieregularnym kształcie
 
-Sarmatyzm - formacja kulturowa określająca obyczaje szlachty polskiej. GENEZĄ jest mit o pochodzeniu ich z rodu sarmatów co ma być powodzeniem do domu. 
+Sarmatyzm - formacja kulturowa określająca obyczaje szlachty polskiej. GENEZĄ jest mit o pochodzeniu ich z rodu sarmatów co ma być powodzeniem do domu. Na początku byli uznawani jaki patrioci, wzór do naśladowania. Z czasem sie to zmieniło.
 
 Prawdziwym sarmatą może być tylko Polak.
 ważna dla niego jest
@@ -17,3 +17,5 @@ Sarmatyzm jest **PEJORATYWNY**(negatywny). Oznaczał przesadną dumę
 **Poezja metafizyczna** - W liryce nurt poezji metafizycznej reprezętowali Szarzyński, Morsztyn, Naborowski, Grabowiecki
 
 **Konceptyzm** - Dążenie do ciągłego zaskakiwania
+
+**Makaronizm** - Podbieranie wyrazów obcych

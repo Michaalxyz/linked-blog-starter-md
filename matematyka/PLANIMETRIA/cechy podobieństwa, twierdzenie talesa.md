@@ -10,8 +10,8 @@ Kąty na przemianległe mają taką samą miarę(np w trapezie)
 
 
 ![[Pasted image 20240315213123.png]]
-
-
+Kąty przeciwstawne
+1
 TWIERDZENIE TALESA
 
 ![[Pasted image 20240315213520.png]]
