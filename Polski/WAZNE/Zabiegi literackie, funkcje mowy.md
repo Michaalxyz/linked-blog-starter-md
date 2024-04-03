@@ -16,6 +16,8 @@ Apstrofa - zwrot do adresata
 
 Perswazja – sztuka przekonywania kogoś do własnych racji. Różni się od manipulacji tym, że przekonanie danej osoby do czegoś nie zaszkodzi jej w późniejszym czasie
 
+Wykrzyknienia służą dodania emocji 
+
 
 
 Funkcje mowy:

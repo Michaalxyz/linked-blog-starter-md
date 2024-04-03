@@ -44,3 +44,6 @@ Motywy(Poświęcenie, cierpienie)
 ###### MIT O DEADALU I IKARZE
 Dedal i Ikar byli uwięzieni na wyspie. Dedal był znanym instruktorem. Aby uciec z wyspy zbudował dla siebie i dla Syna skrzydła. Jego syn Ikar zachłystując się wolnością, wzbił się w niebo za wysoko, przez co jego skrzydła się stopiły a on spadł do morza
 Motyw(wolność, kara i wina)
+
+
+==MIT O HERAKLESIE==
