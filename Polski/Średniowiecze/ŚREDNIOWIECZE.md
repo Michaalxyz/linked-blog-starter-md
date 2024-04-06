@@ -81,6 +81,7 @@ Cechy literatury średniowiecznej:
 
 
 
+**Non omnis moriar**
 
 
 

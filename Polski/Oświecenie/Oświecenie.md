@@ -1,6 +1,6 @@
 # **POJĘCIA**
 
-**racjonalizm** - ("rozumny"), termin filozoficzny  przypisujący zasadniczą rolę w poznaniu  rozumowi. Twórcą jest Kartezjusz "Cogito ergo sum" - Myślę wiec jestem
+**racjonalizm** - ("rozumny"), termin filozoficzny  przypisujący zasadniczą rolę w poznaniu  rozumowi. Twórcą jest Kartezjusz "Cogito ergo sum" - Myślę wiec jestem Descartes
 
 **empiryzm** -świat można poznawać przez zmysły Lock, człoweke jest jak biała tablica
 

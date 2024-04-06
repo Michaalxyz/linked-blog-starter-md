@@ -44,6 +44,8 @@ Hedonizm - Unikać cierpienia, korzystac z przyjemnosci <33//
 
 # TOPOSY
 Topos sławy pośmiertnej - "Non omnis moriar" - nie wszystek umre. Topos utworzony przez Horacego. Sztuka pozostaje na wieki, nawet po śmierci człowieka. Sztuka jest twardsza niż pomnik ze spiżu
+**Non omnis moriar**
+Exegi Monumentum
 
 Topos Vanitas - Topos z biblii, a dokładniej księgi Koheleta. Mówiący o tym, że wszystko w życiu jest marne. I nigdy nie osiągniemy pełni szczęścia.
 

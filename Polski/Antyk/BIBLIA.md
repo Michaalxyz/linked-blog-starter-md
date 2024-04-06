@@ -1,11 +1,11 @@
 # **PODSTAWOWE INFORMACJE**
 
-| Stary testament     | Nowy Testament     |
-|:-----|:-----|
-| 46 ksiąg     | 27 ksiąg     |
-| Hebrajski, aramejski, grecki     | Grecki     |
-| - księga rodzaju<br>- księga koheleta<br>- księga hioba<br>- Pieśń Nad Pieśniami     | - Ewangelia<br>- Dzieje Apostolskie<br>- Listy Apostolskie<br>- Apokalipsa Św Jana     |
-| Twórcy Anonimowi     | Mateusz, Marek, Jan, Łukasz     |
+| Stary testament                                                                  | Nowy Testament                                                                     |
+| :------------------------------------------------------------------------------- | :--------------------------------------------------------------------------------- |
+| 46 ksiąg                                                                         | 27 ksiąg                                                                           |
+| Hebrajski, aramejski, grecki                                                     | Grecki                                                                             |
+| - księga rodzaju<br>- księga koheleta<br>- księga hioba<br>- Pieśń Nad Pieśniami | - Ewangelia<br>- Dzieje Apostolskie<br>- Listy Apostolskie<br>- Apokalipsa Św Jana |
+| Twórcy Anonimowi                                                                 | Mateusz, Marek, Jan, Łukasz                                                        |
 Styl Biblijny:
 
 1. Biblizmy, czyli słowa charakterystyczne w bilbii:
