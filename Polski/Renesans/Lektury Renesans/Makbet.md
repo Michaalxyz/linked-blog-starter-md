@@ -24,4 +24,9 @@ Problematyką utworu jest to jak ambicje i chęć władzy mogą wpłynąć na cz
 
 Makbet jest nie prawym rycerzem. Który ze ściezki idealnego rycerza wchodzi na sciezke tyrana.
 
+Autor pokazuje w ten sposób, że jest ona sprawą nadrzędną, jednocześnie **ukazując istotną rolę poezji i pieśni wajdelotów, które mają pobudzać uczucia patriotyczne**, a nade wszystko ich zadaniem jest oddanie hołdu pamięci dawnych wydarzeń i bohaterów. (walejdota oraz starzec)
 
+
+**czy walka o wolność usprawiedliwia wszelkie czyny**?
+MACHIAVELIZM!!
+  

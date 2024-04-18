@@ -5,7 +5,7 @@ ODPOWIEDŹ NA DZIADY - BEEF
 Kordian rozpoczyna się mottem z powieści "Lambro" Motto nawiązuje do poezji Tyrtejskiej.
 Pojawia się nawiązanie do greckiego patrioty, który stara się przekonać swoich rodaków do walki z Turkami. Pojawia się tutaj **wizja rozniecania płomienia do walki i ponadczasowej wierności wyznawanym ideom**.  
 
-Motyw przemiany: Konrad z romantyka przemienia się w postać Bajronicznego
+Motyw przemiany: Konrad z romantyka przemienia się w postać Bajroniczną
 
 W chacie czarnoksiężnika twardowskiego.
 
@@ -53,3 +53,8 @@ Postawa Konrada ma być bohaterska i wzorcowa.
 
 
 Kordian zwiedza różne miejsca, które pokazują mu negatywy otaczającego go świata
+
+Motywy fantastyczne - w kordianie są ukazane aby wywlec na zewnątrz slabości bohatera
+Kordianowi ukazują się zjawy:
+- doktora(diabeł)
+- Strach i imaginacja

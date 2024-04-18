@@ -18,6 +18,8 @@ Perswazja – sztuka przekonywania kogoś do własnych racji. Różni się od ma
 
 Wykrzyknienia służą dodania emocji 
 
+Patos podniosły charakter zdarzeń o wielkim, historycznym znaczeniu
+
 
 
 Funkcje mowy:
