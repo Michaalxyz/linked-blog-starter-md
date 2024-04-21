@@ -20,6 +20,19 @@ Wykrzyknienia służą dodania emocji
 
 Patos podniosły charakter zdarzeń o wielkim, historycznym znaczeniu
 
+Doktryna 
+Ideologia
+
+Motto - cytat poprzedzający utwór
+Epilog dodatek do utworu
+Prolog część utworu poprzedająca główną akcje
+
+
+_ _ _ wtrącenie
+
+??? pytanie 
+!!! wykrzyknienie
+ 
 
 
 Funkcje mowy:
