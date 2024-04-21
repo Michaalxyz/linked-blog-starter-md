@@ -2,7 +2,7 @@
 
 # 95. Ludzka solidarność w obliczu zagrożenia. Omów zagadnienie na podstawie Dżumy Alberta Camusa. W swojej odpowiedzi uwzględnij również wybrany kontekst.
  **WAŻNE  Z DŻUMY**   
- -  SOLIDARNOŚ NAJWIĘKSZA UKAZANA JEST W OJCU PENELUX, który po śmierci dziecka rozumie, że to nie jest kara za grzechy. Aby z solidaryzować się z ludźmi wypowiada się w formie MY, aby utożsamić się z autorem.
+ -  SOLIDARNOŚĆ NAJWIĘKSZA UKAZANA JEST W OJCU PENELUX, który po śmierci dziecka rozumie, że to nie jest kara za grzechy. Aby z solidaryzować się z ludźmi wypowiada się w formie MY, aby utożsamić się z ludźmi będącymi w tej samej sytuacji.
  -  Gdyby nie solidarność wszystkich Bohaterów nigdy nie wiadomo jak potoczyła by się sytuacja związana z dżumą
  - Solidarność z mieszkańcami przez Ramberta sprawia ze postanawia zostać w mieście
  - Najważniejszy jest główny Bohater walczy o zdrowie mieszkańców. Ukazuje to poprzez poświecenie walczy o to by wyciagnąc miasto z zarazy kosztem swojego szczęścia. Również zamiast uciec do bardzo chorej żony postanawia zostać w Oranie
@@ -22,16 +22,10 @@
 - Walka z nazistami była dla nich bardzo ważna co wskazuje na najważniejsze wartości 
 - Gdyby nie wspólna pomoc sobie nawzajem akcje dywersyjne takie jak Akcja pod Arsenałem(Atak szarych szeregów). Odbito tam jednego z bohaterów Kamieni na Szaniec "Rudego"
 - Można też wspomnieć o **Irenie Sendlerowej**, która swoją Bohaterska postawą i pomocą przyjaciół uratowali masę żydowskich Dzieci 
-
-
 ___
-
-
-
-
 # 96. **Powinności moralne człowieka w obliczu zagrożenia.(Jakby się zachował człowiek) Omów zagadnienie na podstawie Dżumy Alberta Camusa. W swojej odpowiedzi uwzględnij również wybrany kontekst.**
 
- - Można powiedzieć, że gdyby nie Morały wszystkich Bohaterów nie wiadomo jakby się potoczyła powinność
+ - Można powiedzieć, że gdyby nie Morały wszystkich Bohaterów nie wiadomo jakby się potoczyła zaraza
  - Doktor **Bernaud Rioux** był pewny swoich powinności, Wiedział, że musi pomóc ludziom nie zwarzając na ryzyko jakie się z tym wiąże
  - Bohater Miał możliwość porzucenia i ucieknięcia do żony
  - Wybrał jednak walke o zdrowie ludzi. **Widać tu też wręcz postawe prometejską**, Ponieważ tak samo jak prometeusz poświęcił się dla ludzi
@@ -39,8 +33,6 @@ ___
  - Inni Bohaterzy tacy Jak Terrou, Ojciec Peneloux i inni pomagając w idei Doktora pokazali, że największą powinnością moralną człowieka jest walka dobra ze złem 
  - **Jean Terrou** jest człowiekiem którego powinności Moralne są związane z zwalaczaniem zła i odkupywaniem win swojego Ojca. 
  - Mimo, że lekarstwo wstępnie nie działało doktor chciał ulżeć chorym
-
-___
 
 **KONTEKSTY**
 
@@ -59,10 +51,13 @@ ___
 - Jej zasady Moralne jednak spotkały sie z cierpieniem wielu osób syn kreona wiedząc o śmierci swojej ukochanej  postanawia popełnić samobójstwo tak samo jak żona Kreona
 **DZIADY**
 
-
 ___
+
+
+
 # 97. Człowiek wobec cierpienia i śmierci. Omów zagadnienie na podstawie Dżumy Alberta Camusa. W swojej odpowiedzi uwzględnij również wybrany kontekst.
 
+# DŻUMA
 - Dobrym przykładem zachowania człowieka wobec cierpienia i śmierci jest zachowanie głównego bohatera Bernarda Rioux.
 - Bohater mógł przyjąć dwie postawy bierną i aktywną
 - Miał wybór uciec do żony i od śmierci panującego w oranie lub zostać
@@ -88,6 +83,3 @@ ___
 **DZIADY CIERPIENIE KONRADA ZA MILIONY DUSZ**
 
 **prosze państwa do gazu**
-
-
-___

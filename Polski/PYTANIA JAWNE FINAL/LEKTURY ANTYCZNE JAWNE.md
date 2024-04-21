@@ -1,1 +1,0 @@
-1. Człowiek w obliczu cierpienia. Omów zagadnienie na podstawie znanych Ci fragmentów Księgi Hioba. W swojej odpowiedzi uwzględnij również wybrany kontekst.
