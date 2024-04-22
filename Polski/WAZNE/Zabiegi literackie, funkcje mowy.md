@@ -28,9 +28,9 @@ Elipsa - opuszczenie wyrażenia w zdaniu
 
 Pytanie retoryczne- zmusza czytelnika do refleksji
 
-Animizacja - ożywienie 
+Animizacja - ożywienie czegoś martwego nadanie cech istot żywych 
 
-Personifikacja - uosobienie
+Personifikacja - ozywanianir czegoś martwego 
 
 Peryfraza omówienie np. Mickiewicz - autor pana tadeusza
 
@@ -47,9 +47,13 @@ Alegoria - stałe przypisane znaczenie dosłowne i ukryte
 
 Synonimy - bliskoznaczne, inne nacechowanie emocjonalne. 
 
+Homonimy -wyrazy wieloznaczne 
 
+Polisemy dalekie wspólne znaczenie
 
 Anonimy wyrazy przeciw stawne 
+
+Wyrazy wartościujące mogą być pozytywne i negatywne 
 
 
 Doktryna 
