@@ -58,3 +58,7 @@ Motywy fantastyczne - w kordianie są ukazane aby wywlec na zewnątrz slabości 
 Kordianowi ukazują się zjawy:
 - doktora(diabeł)
 - Strach i imaginacja
+
+
+
+Nie chcą zabić króla ponieważ są w kościele św Jana i tam byli wszyscy królowie, natomiast żaden z nich nie został zabity

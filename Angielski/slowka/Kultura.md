@@ -1,7 +1,7 @@
 act in a film - występować w filmie
-cartoon - film anonimowy
+cartoon - film animowany
 direct a film - reżyserować film
-director - rezyserska
+director - rezyser
 non-fiction - literatura faktu
 novelist - powieściopisarz
 play - sztuka 
@@ -9,7 +9,7 @@ plot - akcja
 poet - poeta
 poetry - poezja
 scene - scena
-short story - nowela,opowiadanie
+short story - nowela,opowiadanie, krótkie 
 band - zespół
 folk music - muzyka folkowa
 live music performance - występ muzyczny na żywo

@@ -12,4 +12,21 @@ Narrator zaczyna snuć [opowieść](https://www.bryk.pl/slowniki/slownik-termin
 
 Dal­sze roz­wa­ża­nia do­ty­czą ogól­nych pra­wi­deł na te­mat świą­tyń. Nar­ra­tor są­dzi, że nie waż­na jest ar­chi­tek­tu­ra, a świę­te przed­mio­ty, któ­re przy­cią­ga­ły uwa­gę wier­nych. Pro­wa­dzi to do jego wy­obra­żeń na te­mat przy­by­wa­ją­cych tu wier­nych, po­nie­waż cer­kiew była waż­na dla lo­kal­nej spo­łecz­no­ści. Na­wet po prze­sie­dle­niach, lu­dzie wra­ca­li do tego miej­sca po­now­nie po­czuć się jed­no­ścią.  
 
+
+2 plany akcji 
+W glowie powstawanie tej cerkwi (zeiazek człowieka z natura) Powstała z drzew będących w tej okolicy 
+Rozmowa narratora z turysta
+Chcą usunąć cerkiew bo nie nadaje się do użytku
+
+
+Inne miejsce i inni ludzie(to ludzie budują to miejsce)
+Nie chodzi tyle.o miejsce co o ludzi i historie.
+
+Budowle są symbolem pewnych wydarzeń.
+Turysta stał na progu cerkwi co jest  symbolem wejścia w historie
+
+Tematy: miejsce ważne w zyciu człowieka 
+
   
+Racjonalne spojrzenie turysty na miejsce robi zdjęcia, 
+Metafizyczność jest ważniejsza dla narratora co ona widziala, co przeżyła.

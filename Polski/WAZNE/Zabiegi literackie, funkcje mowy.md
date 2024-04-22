@@ -20,6 +20,38 @@ Wykrzyknienia służą dodania emocji
 
 Patos podniosły charakter zdarzeń o wielkim, historycznym znaczeniu
 
+Neologizm- utworzenie nowego wyrazu 
+Funckja zgrubień i zdrobnień - nacechowanie emocjonalne zgrubienie negatywne zdrobnienie pozytywne
+
+Elipsa - opuszczenie wyrażenia w zdaniu 
+
+
+Pytanie retoryczne- zmusza czytelnika do refleksji
+
+Animizacja - ożywienie 
+
+Personifikacja - uosobienie
+
+Peryfraza omówienie np. Mickiewicz - autor pana tadeusza
+
+Parafraza - upodobanie do języka biblii
+
+Hiperbola - wyolbrzymienie (największy pokój)
+
+Oksymoron Epitet sprzeczny 
+
+Symbol - znak może mieć wiele sposób interpretacji
+
+Alegoria - stałe przypisane znaczenie dosłowne i ukryte
+
+
+Synonimy - bliskoznaczne, inne nacechowanie emocjonalne. 
+
+
+
+Anonimy wyrazy przeciw stawne 
+
+
 Doktryna 
 Ideologia
 

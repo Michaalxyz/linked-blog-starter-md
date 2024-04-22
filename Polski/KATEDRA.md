@@ -30,12 +30,12 @@ Kościół postanawia pozwolić planetoidzie oddalić się od ziemi. Ksiądz wid
 Widoczność świateł w katedrze, przypomina walkę dobra ze złem.
 
 
-# Historia Izmir Pred (kosmonauty)
+# Historia Izmir Predu (kosmonauty)
 Święty był dowódcą holownika kosmicznego. Wylądował na planecie awaryjne. Izmir popełnił samobójstwo żeby jego załoga miała jak najwięcej tlenu, ponieważ był on ograniczony
 
 Jednym z cudów było uzdrownienie **Kottera Ugerzo**(korpocja CGF), brata Stefana (biznesmena) -Byli oni na ekspedycji na której badali "**Czarną Wate**", która była najprawdopodobniej pozostałością po kosmitach
 
-Przy grobie w ramach wdzięczności kazał zaprojektować katedrę. Podstawą budowli są nanozarodniki(ani budowla, ani roślina). Powstaje krzywokryst
+Przy grobie w ramach wdzięczności kazał zaprojektować katedrę. Podstawą budowli są nanozarodniki(ani budowla, ani roślina). Powstaje żywokryst
 
 # BOHATERZY
 
@@ -67,6 +67,9 @@ Człowiek mimo, że poznaje świat nie jest w stanie poznać pewnej jego częśc
 Budynek symbolizuje - cykliczność ludzkiej egzystencji. 
 
 Wykrozystanie: Motyw Ofiary, dróg świętości, ludzkie wybory
+
+
+Jack Mirton 
 
 
 
