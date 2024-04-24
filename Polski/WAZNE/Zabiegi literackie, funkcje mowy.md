@@ -14,6 +14,8 @@ Epitet - przymiotnik opisujący rzeczownik
 
 Apstrofa - zwrot do adresata
 
+retardacja - opoznienie wydarzen
+
 Perswazja – sztuka przekonywania kogoś do własnych racji. Różni się od manipulacji tym, że przekonanie danej osoby do czegoś nie zaszkodzi jej w późniejszym czasie
 
 Wykrzyknienia służą dodania emocji 
@@ -26,9 +28,9 @@ Funckja zgrubień i zdrobnień - nacechowanie emocjonalne zgrubienie negatywne z
 Elipsa - opuszczenie wyrażenia w zdaniu 
 
 
-Pytanie retoryczne- zmusza czytelnika do refleksji
+Pytanie retoryczne - zmusza czytelnika do refleksji
 
-Animizacja - ożywienie czegoś martwego nadanie cech istot żywych 
+Animizacja - ożywienie czegoś martwego nadanie cech istot żywych (ale nie ludzkich) noc przyszła bezszelestnie
 
 Personifikacja - ozywanianir czegoś martwego 
 

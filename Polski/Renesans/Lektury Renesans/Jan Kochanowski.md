@@ -29,6 +29,6 @@ Jan Kochanowski Zastanawia się gdzie znajduje się jego córka. Przytacza tutaj
 
 Poeta obawia się, że z żalu po śmierci dziecka straci nie tylko nadzieje na pocieszenie, ale i rozum.  Wspomina on Brutusa, który mówi, że cnota jest fraszką. 
 
-# TREN XIX (Z CÓRKA JEST WSZYSTKO W PORZĄDKU)
+# TREN XIX (Z CÓRKA JEST WSZYSTKO W PORZĄDKU) // istnieje zycie poza grobowe
 
 W trenie XIX widoczny jest motyw Oniryzmu. Bohater doświadcza snu w którymi widzi swoją matkę trzymającą w rękach jego córkę Orszulkę. Dostaje odpowiedzi na pytanie zadane w trenie X jego córka nie znajduje sie w hadesie w czyścu czy w piekle lecz u Boga. Utwór przynosi pocieszenie. Poucza Jana ze smierc jest naturalnym zjawiskiem i musi sie cieszyc z tego co mu pozostalo. Czas nie leczy ran lecz zastepuje bolesne wspomnienia  radosnymi/

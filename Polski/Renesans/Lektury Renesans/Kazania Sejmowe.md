@@ -8,7 +8,7 @@ Teksty ostatecznie nie zostały wygłoszone
 
 **POJĘCIA**
 
-ABSOLUTYZM -  WŁADZA W RĘKACH JEDNEJ OSOBY
+**ABSOLUTYZM** -  WŁADZA W RĘKACH JEDNEJ OSOBY
 
 **OGÓLNE**
 

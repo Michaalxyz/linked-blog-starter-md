@@ -1,7 +1,3 @@
-# Krótkość żywota
-
-Mikołaj Sęp Sarzyński mówi tam o przemijalności pokoleń.
-Życie jest czwartą częścią mgnienia. Przeznaczeniem człowieka jest śmierć.
 
 # Marność
 

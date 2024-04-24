@@ -120,3 +120,11 @@ MATKA JADWIGA CEZAREGO
 
 https://historia.wprost.pl/10085530/jozef-pilsudski-i-roman-dmowski-dwie-wizje-niepodleglej-polski.html
 https://poezja.org/wz/interpretacja/4027/Przedwiosnie_streszczenie/7/
+
+
+TANIEC "KOZAK " SYMBOLIZOWAŁ WSPÓLNĄ PRZESZŁOŚĆ
+- CEZARY STRACIŁ RODZIŁ 
+- KAROLINA STRACIŁA RODZICÓW NA UKRAINIE 
+
+# ZASŁAWIE
+- Cezary byl zakochany w Laurze

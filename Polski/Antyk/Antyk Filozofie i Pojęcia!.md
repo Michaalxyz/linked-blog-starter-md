@@ -27,6 +27,7 @@ Hedonizm - Unikać cierpienia, korzystac z przyjemnosci <33//
 ==hamartia== - fałszywe rozpoznanie swojej sytuacji przez bohatera
 
 ==eschatologia== - poglady dotyczące życia po śmierci 
+
 ==Anakreontyk== - pierwowzór fraszki, krótki żartobliwy utwór.
 
 ==mecenat== - opieka nad artystami.
