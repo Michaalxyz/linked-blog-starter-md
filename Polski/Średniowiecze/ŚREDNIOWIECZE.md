@@ -17,12 +17,14 @@ Nazwa epoki pochodzi od terminu Medium aevum(Wieki średnie)
 
 ## KLUCZOWE POJĘCIA
 
+
+
 **Teocentryzm:**
 - W centrum zainteresowania znajdował się Bóg
 - **"memento mori"** - pamiętaj o śmierci(Życie ziemskie jest wstępem do wieczności)
 - W średniowieczu chodzi o znalezienie drogi do zbawienia
 
-**DUALIZM**
+**DUALIZM** - sacrum profanutm
 
 - Dualizm jest wynikiem dominującego teocentryzmu. oznacza że świat jest podzielony na dwie strefy SACRUM(Rzeczy święte, nadzwyczajne) I PROFANUM (Rzeczywistość materialna, przyziemna)
 - Człowiek posiada wieczną duszę i śmiertelne ciało
@@ -30,6 +32,7 @@ Nazwa epoki pochodzi od terminu Medium aevum(Wieki średnie)
 
 **UNIWERSALIZM**
 
+- Zjednoczenie
 - Tam gdzie docierało chrześcijaństwo kultura była ujednolicona
 - Ten sam system szkolnictwa, scholastyka, te same modlitwy
 
@@ -41,6 +44,8 @@ Nazwa epoki pochodzi od terminu Medium aevum(Wieki średnie)
 Charkteryzował się społeczeństwem podzielonym na stany(duchowieństwo i rycerstwo).
 
 Najważniejszymi symbolami średniowiecza są **krzyż(duchowieństwo)** + **miecz(rycerstwo)**
+
+**HIERARCHICZNOŚĆ ŚWIATA**
 
 
 INNE WAŻNE POJĘCIA/MOTYWY
@@ -59,7 +64,8 @@ INNE WAŻNE POJĘCIA/MOTYWY
   
 - **idea pośrednictwa** - Pomiędzy stwórcą a ludźmi stali Jan Chrzciciel i Maryja.
   
-- **hagiografia** - legendy opowiadające wydarzenia z życia świętych(Legenda o świętym Aleksym)
+- **hagiografia** - legendy opowiadające wydarzenia z życia świętych(Legenda o świętym Aleksym)<b>Historiografia</b>
+
   
 - **Scholastyka**(wyjaśnienie naukowe zasad wiary)
   

@@ -48,7 +48,7 @@ WINKELRID - poświęcił swoje życie w szwajcarii po to żeby inni mogli zwyci�
 
 Postawa Konrada ma być bohaterska i wzorcowa. 
 
-![[Pasted image 20240411204555.png]]
+![[Pasted image 20240428215053.png]]
 
 
 

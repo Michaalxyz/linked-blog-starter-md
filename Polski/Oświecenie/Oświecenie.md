@@ -17,3 +17,5 @@
 **klasycyzm** - powrót do tego co dobre(antyk, starożytność)
 
 **Alegoria** - przypisanie znaczen do np zwierząt
+
+

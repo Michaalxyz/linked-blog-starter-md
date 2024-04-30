@@ -3,6 +3,15 @@ Adam Mickewicz
 - Ostatni wielki utwór Mickiewicza, zbiera doświadczenia ze wszystkich lat wcześniejszych
 
 
+ZAJAZD - EGZEKWOWANIE PRAWA I TEGO KOMU CO SIE NALEZALO
+
+PODKOMORZY MA ROZSĄDZIĆ SPÓR O ZAMEK
+
+POLSKA JEST ZACHOWANA NA LITWIE
+
+**szlachta sarmacka tak zapisała się w pamieci dziecka**
+
+
 # WYDARZENIA
 
 # SPÓR O ZAMEK MIĘDZY HRABIĄ  A SĘDZIĄ
@@ -73,4 +82,6 @@ księgi Pozostałe
 - [Młodość](https://www.bryk.pl/slowniki/slownik-symboli-literackich/101630-mlodosc) poety została określona jako kraj "święty i czysty, jak pierwsze kochanie", w którym wszystko było doskonale znane i swojskie. "Epilog" jest pewnego rodzaju ucieczką w dzieciństwo.  
 - Inowkacja "litwo ojczyzno moja..."
 - Jednocześnie Wspomnienie
+- Kraj czysty
+- Pozostaje to co było w pamięci dobre i atrakcyjne
   

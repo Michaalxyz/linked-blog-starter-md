@@ -13,7 +13,7 @@
 ### KONTEKSTY
 ### Daniel Naborowski - Marność
 -  Pod­miot li­rycz­ny za­uwa­ża, że świat opie­ra się na tym­cza­so­wych war­to­ściach. Lu­dzie dążą do zdo­bycia ma­jąt­ku, sła­wy czy mi­ło­ści, mimo że wszyst­ko to nie­uchron­nie prze­mi­nie. Wszyst­kie osią­gnię­cia nie będą jed­nak mia­ły zna­cze­nia dla Boga, każ­dy czło­wiek sta­nie przed nim na tych sa­mych za­sa­dach. Je­dy­ne, co jest sta­łe na świe­cie, to wła­śnie prze­mi­ja­nie oraz ty­tu­ło­wa mar­ność.  Uważa też, że ludzie powinni milować i cieszyć się z życia
-### - Legenda o św Aleksym
+### - Legenda o św Aleksym (nie przywiązuje niestałośći skupia się na boskim aspkcie)
 ### - Arystokracja - włości, majątek, status
 
 - **Exegi momnumentum poezja jako coś stałego**
@@ -32,6 +32,9 @@ ___
 - kiedyś apokalipsa była cudem
 - Patmos - tam ją napisał św Jan
 - Świat w trakcie apokalipsy pożrą (**Wojna, Zaraza, Głód i Śmierć**.)
+
+gdy otworzył [pieczęć](https://www.bryk.pl/slowniki/slownik-symboli-literackich/101652-pieczec) siódmą zapanowała w niebie cisza jakby na pół godziny. (…) A siedmiu aniołów wniosło siedem trąb, by z zatrąbić.Dźwięk każdej z trąb symbolizował – podobnie jak w przypadku otwierania pieczęci – inny kataklizm (żywioł kary Bożej) : [ogień](https://www.bryk.pl/slowniki/slownik-symboli-literackich/101640-ogien), ocean, zatrucie wód, zaćmienie słońca – ciemności, szarańcza, wojna, śmierć. Siódma z trąb symbolizowała nadejście Jezusa Chrystusa co można kojarzyć z Sądem Ostatecznym.  
+  
 
 Symbole:
 666 - zaprzeczenie doskonałości
@@ -77,7 +80,7 @@ ___
 ## **Kontekst filozoficzny**  
 Św. Augustyn w refleksjach nad istnieniem zła doszedł do wniosku, że zło jest brakiem dobra, a nie samodzielną istotą; jest pustką lub niedoskonałością, która pojawia się, gdy człowiek odsuwa się od Boga.
 
-# **Mitologia**  - **PROMETEUSZ**
+# **Mitologia**  - **PROMETEUSZ**!!!!!!!!!!!!!!
 - Zgodnie z mitologią świat wyłonił się z Chaosu a wraz z Bogami pojawiło się dobro i zło. Dokładniejszy obraz dobra i zła odnajdziemy w micie o Promoteuszu
 - Prometeusz stworzył człowieka z gliny i łez na swoje podobieństwo i obdarzył go szczególną opieką. 
 - Człowiek pozoronie przypomniał bogów tak naprawdę był jednostką słabą. Nie wiedzieli jak przetrwać będąc w ciągłym niebezpieczeństwie
@@ -90,3 +93,60 @@ ___
 - Prometeusz zasmucil sie i oszukał zeusa(Dary od ludzi tłuszcz..)
 - Prometeusz został przykuty do kaukazu. Orzeł wyjadał organ Prometeusza
 - Przykłąd jego dobra i poświęcenia był wiele razy ukazywany w literaturze
+
+# 8. Jakie wizje zaświatów można odnaleźć w literaturze? Omów zagadnienie na podstawie Mitologii Jana Parandowskiego. W swojej odpowiedzi uwzględnij również wybrany kontekst.
+
+- Śmierć jedna z najciekawszych rzeczy
+- Mitologia pokazuje jeden z bardziej charakterystycznych obrazów zaświatów
+- Miejsce te nosi nazwe Hades tak smao jak władca tej krainy
+- Po hadesie przechadzały się różne personifikacje  takie jak choroby starość śmierć czy wojna. 
+- Dusze trafiające do hadesu trafiały również do osądu do trzech króli. Minosa Ajakosa i Adamantysa.
+- Niegodziwcy, schaniebni życiem na ziemi trafiali do tartaru
+- Dobzi zaś na wyspę błogosławionych
+- **Tanatos**
+# KONTEKST - BOSKA KOMEDIA DANTEGO
+Chrześcijańśki obraz widzimy w boskiej Komedii Dantego, który pokazuje pokoli każde miejsce do którego mogą trafić ludzie.
+
+Autor chciał odstarszyć ludzi od zgrzeszenia
+zaświaty to miejsce w którym każdy zostanie sprawiedliwie osądzony
+
+obraz piekła, czyścca, niebo
+pierwsze i ostatnie miejsce opisywane jest w formie kręgów.
+
+Napis w piekle 
+"Ty, który wchodzisz, żegnaj się z nadzieją”
+
+
+# 9. Co skłania człowieka do podróżowania? Omów zagadnienie na podstawie Mitologii Jana Parandowskiego. W swojej odpowiedzi uwzględnij również wybrany kontekst.
+
+# Orfeusz i euredyka 
+# Tarrou dżuma
+
+Biblia - Kain, skazany na wieczną tułaczkę 
+
+Adam i Ewa  - musieli sie poruszac aby przezyc
+
+Kordian - Szukanie Idei
+
+
+
+# 10. Problematyka winy i kary. Omów zagadnienie na podstawie Mitologii Jana Parandowskiego. W swojej odpowiedzi uwzględnij również wybrany kontekst.
+
+
+- Zbrodnia i kara - fiodor dostojewski
+- Makbet William szekspir
+- Syzyf 
+- Kain i Abel
+
+
+# 11. Miłość silniejsza niż śmierć. Omów zagadnienie na podstawie Mitologii Jana Parandowskiego. W swojej odpowiedzi uwzględnij również wybrany kontekst.
+
+- Przedwiośnie - Jadwiga Baryka - **MATKA**
+- Orfeusz i Euredyka
+- Lalka  - probla samobojcza
+- **Kordian - smierc dla idei dla narodu/ wybitna jednostka**
+
+
+
+
+https://www.youtube.com/watch?v=yQHJNV-Y15s

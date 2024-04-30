@@ -10,14 +10,14 @@ Zainteresowanie pieniędzmi może przerodzić się w prawdziwą obsesję.
 
 Pokazuje to sytuacja z zaginioną skrzyneczką  oraz ile Harpagon jest w stanie poświęcić żeby ją odzyskać.
 
-Poruszany jest również problem fałszywości.  Harpagon jest lichwiarzem i za pomocą pośredników proponuje pożyczki z dużym procentem. Harpagon stara się przez to kreować tym kim nie jest.
+Poruszany jest również problem fałszywości.  **Harpagon jest lichwiarzem** i za pomocą pośredników proponuje pożyczki z dużym procentem. Harpagon stara się przez to kreować tym kim nie jest.
 
 Harpagon czuje cały czas zagrożenie nawet ze strony rodziny.  Boji się, ze ktos mu ukradnie szkatółke
 Widać to nawet w relacjach rodzinnych, gdzie planuje wydać swoje dzieci za osoby mogące przynieść mu zysk.
 
 Przeciwieństwem Harpagona jest Anzelm. Uosabia on prawdziwą rodzicielską miłość i hojność
 
-Walery(Ukochany elizy)  stara się przypodobać ojcu, co nie za bardzo mu wychodzi(Popiera wydanie Elizy za Anzelma)
+Walery (Ukochany elizy)  stara się przypodobać ojcu, co nie za bardzo mu wychodzi(Popiera wydanie Elizy za Anzelma)
 Kleant Wchodzi natomiast w konflikt z ojcem
 
 **Widoczna tutaj jest również  walka pokoleń starych i młodych, którzy chcą żyć zgodnie z własnymi wyobrażeniami a nie podporządkowywać się rodzicom i ich pobudkom**

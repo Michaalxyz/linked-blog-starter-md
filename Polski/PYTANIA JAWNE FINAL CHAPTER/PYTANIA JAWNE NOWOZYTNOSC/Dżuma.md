@@ -9,7 +9,7 @@
  - Wspólna walka ze złem zaciśnia przyjaźń między Tarrou a Grandem.
  - Odbierając Parabole jako szerszy obraz można powiedzieć, że jeśli ludzie razem nie wystąpią przeciwko złu to nigdy go nie pokonają
  **KONTEKSTY**
-   # **DZIADY** 
+   # **DZIADY** SOLIDARNOSC KONRADA
    - **Przykładem solidarności jest postawa Konrada w Wielkiej Improwizacji**
    - Konrad wychodzi przeciwko Bogu aby zbawić ludzi cierpiących przez sytuacje jaka panuje w kraju
 	   - Zabory
@@ -24,6 +24,8 @@
 - Można też wspomnieć o **Irenie Sendlerowej**, która swoją Bohaterska postawą i pomocą przyjaciół uratowali masę żydowskich Dzieci 
 ___
 # 96. **Powinności moralne człowieka w obliczu zagrożenia.(Jakby się zachował człowiek) Omów zagadnienie na podstawie Dżumy Alberta Camusa. W swojej odpowiedzi uwzględnij również wybrany kontekst.**
+
+- Tarrou wędrowiec
 
  - Można powiedzieć, że gdyby nie Morały wszystkich Bohaterów nie wiadomo jakby się potoczyła zaraza
  - Doktor **Bernaud Rioux** był pewny swoich powinności, Wiedział, że musi pomóc ludziom nie zwarzając na ryzyko jakie się z tym wiąże

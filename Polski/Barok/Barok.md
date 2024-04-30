@@ -2,9 +2,9 @@
 
 Barocco - Perła o nieregularnym kształcie
 
-Sarmatyzm - formacja kulturowa określająca obyczaje szlachty polskiej. GENEZĄ jest mit o pochodzeniu ich z rodu sarmatów co ma być powodzeniem do domu. Na początku byli uznawani jaki patrioci, wzór do naśladowania. Z czasem sie to zmieniło.
+**Sarmatyzm** - formacja kulturowa określająca obyczaje szlachty polskiej. GENEZĄ jest mit o pochodzeniu ich z rodu sarmatów co ma być powodzeniem do domu. Na początku byli uznawani jaki patrioci, wzór do naśladowania. Z czasem sie to zmieniło.
 
-Prawdziwym sarmatą może być tylko Polak.
+**Prawdziwym sarmatą może być tylko Polak.**
 ważna dla niego jest
 - Wolność
 - Równość wewnętrzna(Sarmata jest tylko równa sarmacie)

@@ -18,3 +18,6 @@ Kiedy są same literki litera jest jedynkąQ
 
 ![[Pasted image 20240224132525.png]]
 
+
+
+![[Pasted image 20240430113324.png]]

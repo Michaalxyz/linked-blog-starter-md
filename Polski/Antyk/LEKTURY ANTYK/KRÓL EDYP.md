@@ -1,7 +1,7 @@
 Autor: Sofokles
 
 # OMÓWIENIE
-
+- Ojcem był Lajos, dowiedzial się o przepoweidni i kazał zabić swoejgo syna
 - Król Edyp jest ojcem Antygony Ismeny, Polinika i Eteoklesa
 - Pochodzą z rodu Labdakidów
 - Nad edypem ciąży fatum, które mówi, że zabije swojego ojca i poślubi matkę z którą spłodzi potomostwo.

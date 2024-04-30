@@ -123,10 +123,16 @@ Przypowieść jest to inaczej parabol. Obraz dla szerszego problemu. Ma znaczeni
 
 Ojciec nie zwątpił w syna tak samo jak bóg nie zwątpił w człowieka.
 
+___
 
 ### Apokalipsa św Jana
 
+**Wieści zagłade świata**
+
 Jedynym godnym otwarcia świętej księgi jest Baranek (Chrystus). Adresatem 7  listów jest 7 kościołów w azji. W księdze jest 7 pieczęci
+
+
+Jest ciężka do odsluchania przez liczną symbolike
 
 Apokalipsa to teraz kataklizm, a kiedyś cud.
 
@@ -145,6 +151,15 @@ Symbole:
 Baranek - Chrystus 
 Babilion - Rzym miasto zła.
 
+Symboliczny i obrazowy
+To bóg decydował kiedy świat się zaczął i  skończył
+Na wyspie patmos Jan miał wizje końca świata
+
+- Koniec świata jest następstwem wydarzeń dziejących się na ziemi
+- Ujawnił się tam bóg, przy którym było 24 starców. 4 istoty żyjące i baranek(Jezus chrystus) 
+- Miał otwierać on 7 pieczęći
+- Wojna, zaraza, głód i śmierć. W utowrze pada imie tylko ostatniego  
+- Po otwarciu siódmej pieczeci janowi miała się ukazać wizja 7 trąb ukazująca 7 nieszczęść takie jak np zatrucie wody, zaćmienie ciał niebieskich 
 
 
 

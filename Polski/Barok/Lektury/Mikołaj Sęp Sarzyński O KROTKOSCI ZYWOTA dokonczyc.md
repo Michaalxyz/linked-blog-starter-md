@@ -1,4 +1,4 @@
-Tworzył on poezje dokładniej sonety
+**Tworzył on poezje dokładniej sonety**
 
 Sonety są pełne niepokoju związane z człowieczym rozdwojeniem.
 Człowiek jest skazany na walkę pomiędzy duszą a ciałem.

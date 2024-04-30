@@ -38,10 +38,35 @@ Hedonizm - Unikać cierpienia, korzystac z przyjemnosci <33//
 
 ==poezja tyrtejska== - nawoluje do walki w obronie niepodległości.
 
-==epos== - wyniosły utwór na tle wydarzeń historycznych.
+==epos== - wyniosły utwór na tle wydarzeń historycznych. Pojawienie się inwokacji 
+
+**Teatr antyczny - zasada 3j, Ku czci dionizosa**
+
+**idealizacja wizerunku Achillesa**
 
 ==Prometeizm== – postawa etyczna, dla której ideałem moralnym jest dobrowolne podporządkowanie działań jednostki dobru ludzkości.
 
+**Horacjanizm** – stworzona przez rzymskiego poetę Horacego postawa wobec życia i moralności. Była swoistym poszukiwaniem złotego środka poprzez połączenie dwóch antycznych filozofii życia: epikureizmu i stoicyzmu
+
+
+**Alegoria** - Jest jednoznaczna, wartosc dwuznaczna 
+
+**Teodycea** -  gałąź teologii zajmująca się problemem, jak pogodzić istnienie dobrego, miłosiernego Boga z istnieniem zła.
+
+**topos** - powracający temat
+
+**archetyp** - wzorzec(Herakles boahter który przechodzi przez wiele problemów)
+**demeter** - archetyp cierpiącej magii
+# PSALM
+- **rodzaj pieśni religijnej, o podniosłym, modlitewnym charakterze, którego adresatem jest zazwyczaj Bóg, rzadziej człowiek**
+
+# STYL BIBLIJNY 
+- Frazeologia
+- Rozpoczynanie zdań od  spójników
+- Apostrofa
+- metafory
+- Szyk przestawny
+- Anafora
 
 # TOPOSY
 Topos sławy pośmiertnej - "Non omnis moriar" - nie wszystek umre. Topos utworzony przez Horacego. Sztuka pozostaje na wieki, nawet po śmierci człowieka. Sztuka jest twardsza niż pomnik ze spiżu
