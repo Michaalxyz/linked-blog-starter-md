@@ -2,7 +2,7 @@ Autor: Jacek Dukaj
 
 Opowiadanie **fantastyczno-naukowe** prowadzi ksiądz **Pierre Lavone**, który jest w trakcie podróży. 
 
-Dociera na planetę  Róg na której pochowano świętego Izimira Predu.
+Dociera na planetę  Róg na której pochowano świętego **Izimira Predu**.
 
 Autor porusza się do tego grobu na statku o nazwie **"Rozmaryn"**.
 

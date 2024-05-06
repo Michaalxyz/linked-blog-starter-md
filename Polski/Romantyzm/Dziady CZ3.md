@@ -132,3 +132,9 @@ Widoczny jest tutaj prometeizm. Lecz zostaje szybko zniszczony przez to ze prome
 
 **Przemiana Gustawa w Konrada**, to przemiana w człowieku dwóch namiętności. Nieszczęśliwej miłości, na rzecz miłości do ojczyzny. Odrzuconego kochanka, w walecznego buntownika. Postać Gustawa i jego [metamorfoza](https://www.bryk.pl/slowniki/slownik-biologiczny/86534-metamorfoza) ma wspólny [wątek](https://www.bryk.pl/slowniki/slownik-terminow-literackich/70093-watek) z pozostałymi częściami "Dziadów". Przeistoczenie się nie wyzwoliło Gustawa z cierpienia, które trawiło go poprzez nieszczęśliwą miłość, teraz w postaci Konrada drąży go zarówno cierpienie fizyczne (głód, tortury, założone kajdany), ale też psychiczne: walka z demonami, z własną wizja świata, a także obarczenie zadaniem ponad ludzkie siły. Adam Mickiewicz pokazując cierpienie, jako cechę, która wiernie towarzyszy człowiekowi w jego życiu. Staje się nieodłącznym elementem duszy człowieka. W III cz. "Dziadów" Konrad poprzez cierpienie jest wystawiony na próbę wiary. Widząc prześladowania wątpi, czy Bóg jest dobry. Czy zło jest przez Niego akceptowane.  
   
+
+
+- Marytrologia młodzieży polskiej cierpienie polaków młodych patriotów
+
+
+Gdy Wasilewski był niesiony przez żołnierza, jego ręce układają się tak jakby był ukrzyżowany. Jego cierpienie zostało poddane sakralizacji, sugeruje analogię między cierpieniem Chrystusa na krzyżu, a męką narodu polskiego.

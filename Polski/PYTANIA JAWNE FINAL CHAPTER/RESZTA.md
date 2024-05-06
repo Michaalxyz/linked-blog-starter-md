@@ -25,3 +25,7 @@ Przy pomocy baśniowych i fantastycznych elementów Słowacki przekazuje odbiorc
 
 
 KONTEKST MAKBET
+
+
+
+18. **Średniowieczny etos rycerski. Omów zagadnienie na podstawie znanych Ci fragmentów Pieśni o Rolandzie. W swojej odpowiedzi uwzględnij również wybrany kontekst.**

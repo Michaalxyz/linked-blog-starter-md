@@ -39,3 +39,6 @@ moralny ideał postępowania którego celem powinno być dobro ogółu.«postawa
 wyrazem jest poświęcenie się jednostki dla dobra ogółu» Konrad w Wielkiej improwizacji i ludziebezdomni
 
 **Martyrologia** - cierpienie narodu
+
+
+

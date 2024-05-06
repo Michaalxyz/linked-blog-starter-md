@@ -21,6 +21,8 @@ Wyspiański wspomina, że to chłopi są gotowi na powstanie a nie inteligencja
 
 
 Bohaterzy są pierwowzarami oryginalnych postaci.
+Pan młody - Jan Rydel
+Gospodarz - Włodzimierz Tetmajer(Tak samo jak pan młody tez był inteligentem)
 
 
 
@@ -104,4 +106,49 @@ https://teachis.pl/jaka-ocene-dziejow-polski-zawiera-utwor-literacki-omow-zagadn
 
 
 https://lekcjapolskiego.pl/opracowania/symboliczne-znaczenie-przedmiotow-w-utworze-literackim-omow-zagadnienie-na-podstawie-wesela-stanislawa-wyspianskiego-w-swojej-odpowiedzi-uwzglednij-rowniez-wybrany-kontekst/
-rzecki kurwa`
+rzecki kurwa
+
+
+
+# CO WARTO WIEDZIEĆ
+- Pierwsza widoczną rzeczą jest zachowanie wobec chłopów przez inteligencje(Podwazenie wiedzy chłopów odnośnie wiedzy o świecie) Czepiec zaczepia dziennikarza ze chłopi są gotowi do walki w każdej chwili a oni nie
+- Brak wiedzy odnośnie życia chłopskiego objawia się w rozmowie między radczynią a kliminą która pyta czy juz zasiali, natomiast klimina mówi ze to jeszcze nie czas
+- Ksiądz raduje sie  z pobytu na wsi, poniewaz w miescie przez swoje pochodzenie uznawany jest za gorszego od innych
+- Pan młody ciągle kokietuje swoją żone która troche ma juz tego dosc. Kaze jej sciagnac buty nie wiedząc ze tradycja nakazuje by tanczyc wlasnie w butach
+- WAZNE - Umiłowanie Pana Młodego do natury występującej na wsi. Idealizuje ją mówiąc ze działa na niego jak prawdziwie uzdrowienie
+- **Poeta zauważa, że rzeczywiście w każdym z nas hula taki duch, który chciałby sięgnąć po niemożliwe, gnać tam, gdzie pragnie serce, wydrzeć się i polecieć wysoko rozwinąć skrzydła, ale blokuje go pospolitość, która nas otacza**.  
+  
+#  AKT 2
+
+- Pojawia sie chochoł, który kaze przekazać Isli ze będzie miał takich gości na weselu jakich chciał. Isla przegania chochoła uwazajac go za smiecia
+___
+DUCHY
+
+Marysia - Były narzeczony
+- Marysi ukazuje sie duch jej narzeczonego. Okazuje sie ze Marysia dalej tęskni za swoim narzeczonym prosząc go aby ten jeszcze został. Narzyczony mowi Marysiu ze miejsce jego pochówku nie jest wazne a to ze on jest teraz przy niej
+
+
+**DZIENNIKARZ - STAŃCZYK**
+
+- Dziennikarzowi objawia sie natomiast stańczyk. Nadworny błazen. Dziennikarz widzi gasnącego ducha w narodzie natomiast nic z tym nie robi za co stańczyk go karci. Dodaje ze tylko serce ciągnie go do dawnej wolności. On woli natomiast nie działać.
+- Stańczyk traktuje rozmowę z dziennikarzem jako spowiedź ale nie samego dziennikarza, lecz przeszłych pokoleń
+- Dziennikarz argumunetuje swoje zachowanie przechodzeniem win z pokolenia na pokolenei. Stanczyk znowu go wysmiewa mówiąc ze przez takie narzekanie nie naprawi bledow sprzed lat
+- Wspomniany jest dzwon zygmunta, który kiedyś oznaczał zwycięstwo a teraz zalobe
+- Dziennikarz  nie widzi nadzieji dla narodu polskiego
+- Dzeinnikarz dostaje Kaduceusz, w ktorych ma mącic  w sercach polaków 
+- Dziennikarz wie ze ma moc, ale nie realizuje, teksty ktore tworzy usypiają i zeby wyczekiwać 
+
+**POETA - RYCERZ KAZIMIERZ PRZERWA TETMAJER - ZAWISZA CZARNY**
+- Poeta to kazimierz przerwa tetmajer, poetyckie góru. Dziecko epoki. Miał marzenia o poezji mówiącej o walce i zwycięstwie stworzył poemat o zawiszy Czarnej
+- Zawisza mówi o tym ze w tekstach poety nie ma hasła, które by napędziło poetów do walki. Nie ma odwagi ani iskry. Opowiada o przyszłości. Która mówi ze wielkość jest juz za nami
+- Tetmajer tez był dekadentem. 
+
+**GOSPODARZ - WERNYHORA -Włodzimierz tetmajer**
+- WERNYHORA TO WIESZCZ, Zostawia  złoty róg
+- Mógłby być doskonałym dowódcą. Nalezał do inteligencji. Żył z chłopami
+- Gospodarz boi sie mysli ze to dowodctwo nie dla niego
+- Daje jaskowi złoty róg
+- Jasiek gubi czapke z piór, która jest symbolem jego władzy chociaz na tą chwilę. Pochylając się po swoją czapke zgubił złoty róg
+
+
+Chocholi taneic symbolizuje uśpienei narodu braku gotowści jako grupy do podjęcia działania.

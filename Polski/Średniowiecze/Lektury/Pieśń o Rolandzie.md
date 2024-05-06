@@ -6,7 +6,7 @@ Nie jest też Bohaterem idealnym ponieważ przez swoją pyche i dumę z powodu  
 
 Do cech pozytywnych zaliczamy oddanie swojej religii, miłość do ojczyzny i gotowość do poświęcenia swojego życia na rzecz celów wyższych
 
-Najważniejszą częścią utworu jest moment śmierci rycerza. Rycerz umiera doczołgując się na górę co jest nawiązaniem do golgoty.
+Najważniejszą częścią utworu jest moment śmierci rycerza. Rycerz umiera doczołgując się na górę co jest nawiązaniem do golgoty. **Dies irae motyw anioła.**
 
 Podczas śmierci następują zjawiska nadprzyrodzone takie jak zejście aniołów i zebranie jego duszy do nieba. Warto dodać że Rolland umiera patrząc w stronę Hiszpanii
 
@@ -19,3 +19,9 @@ Utwór jest też przerysowany(Wojska rollanda szybko zostaly rozbite a Karol nie
 
 
 **chansons de geste** - pieśń opowiadająca o czynach wielkich Bohaterów
+
+
+
+W Hiszpanii toczą się walki między cesarzem Karolem Wielkim a zamieszkującymi Hiszpanię Saracenami  
+  
+https://www.bryk.pl/lektury/nieznany/piesn-o-rolandzie.problematyka

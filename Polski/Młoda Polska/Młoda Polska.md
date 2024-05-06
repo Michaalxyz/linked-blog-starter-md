@@ -11,7 +11,9 @@
 
 
 - **Symbolizm** - rzeczywistość składa się z materii i ducha, symbole dają możliwość interpretacji.
-- Ekspresjoznim - Celem sztuki jest odtworzenie własnych treści zewnętrznych
+
+
+Ekspresjoznim - Celem sztuki jest odtworzenie własnych treści zewnętrznych
 
 
 

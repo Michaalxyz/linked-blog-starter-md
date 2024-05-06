@@ -73,6 +73,11 @@ INNE WAŻNE POJĘCIA/MOTYWY
   
 - **Pieta** - Matka boska bolejąca nad Synem leżącym na jej kolanach.
 
+- Ars moriedni - sztuka umierania
+
+
+- Hanson de geste - Konrad Wallenrod
+
 Cechy literatury średniowiecznej:
 - Religijna
 - Dydaktyczna(jak osiągnąć zbawienie)

@@ -1,6 +1,8 @@
 **Antyk** - to inaczej starożytność
 Za początek epoki uznaje się wynalezienie pisma, natomiast za koniec wynalezienie pisma.
 
+# Antyk Judechrześcijańśki i  antyk grecko rzymski
+
 ## **FILOZOFIE W ANTYKU**
 
 Stoicyzm - Osiągniecie wewnętrznego spokoju i balansu między szczęściem a niepowodzeniami.

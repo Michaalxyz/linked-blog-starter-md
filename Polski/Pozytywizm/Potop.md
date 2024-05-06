@@ -10,7 +10,22 @@ Kontekst Historyczny:
 	- odmawianie praw mieszczanom
 - Powieść prezentuje pochwałę dla wielu jednostek. Pojedyńcze jednostki  i ich wybory, poświęcenie do granic wytrzymałość
 
-
+- Billewiczowie mieszkali w Wodoktach
+- Herakliusz przekazal Kmicicowi Lubicz
+- Zgraja Kmicica strzela w obrazy Billeiwczów
+- Butrymowie polozyli kompanie kmicica. Kmicic rusza do
+- Wołmontowicze 
+- Kmicic porywa oleńke ponieważ szlachta planuej ją wydać za wołodyjowskiego
+- **Zdradą narodu jest oddanie wielkopolski pod rządy szwedów**** przez szlachte w poznaiu dla krola gustwa
+- Radziwiłowie(Bogusław oraz Janusz) postanawia połączyć litwę ze szwecją co jest uznawane za zdrade Kiejdany KURWA Kmicic uznawany jest za zdrajce  poniewaz przysiagl posluszenstwo i musi stac  przy Radziwile
+- Radziwił próbuje przekonać kmicica ze robi to dla dobra ojczyzny
+- Kmicic dowiaduje sie od Ksiecia Bogusława ze dla Radziwiła liczy się tylko jego interes, Babninicz wypowiada więc radziwiłowi swoją wierność
+- Kmicic widzi większą wole walki w miesznacach niz we szlachcie. Pomaga napadniętemu który ma córke oleńke i modli sie ona o babinicza
+- Kmicic dowiaduje sie o ataku na częstochowe. Dochodzi do obrony częstochowy, Kmicic uszkadza w nocy najgorźniejsze z dział
+- W tatrach ratuje on Króla Jana Kazimierza
+- Kazimierz oddaje opieke nad państwen **Maryi W lwowie**
+- Ksiądz Kordecki
+- Rehbailitacja 
 **MOTYW PRZEMIANY**
 
 Andrzej Kmicic przed przemianą
@@ -22,6 +37,7 @@ Andrzej Kmicic przed przemianą
 - TYPOWY SARMATA
 - Podczas strzelania trafia w obrazy Billewiczów
 Andrzej Kmicic w trakcie przechody przechodzi wewnętrzną przemianę.
+- Zalezy mu na zdaniu Oleńki
 - Po poznaniu Oli Billewiczównej rozpoczyna się przemiana wewnętrzna
 - Po walce z Wołodyjowskim postanowił wstąpić do wojska i walczyć za ojczyzne aby odkupić swoje grzechy
 - Dochodzi do zmiany imienia na **Babinicz**
@@ -37,9 +53,11 @@ MANE, TEKEL ,FARES - POLICZONO, ZWAZONO ROZDZIELONO(BŁAZEN)
 # Sposoby i cel ukazywania wydarzeń historycznych w literaturze. Potop - pytania z puli jawnej
 
 - W erze pozytywizmu potrzebny był obraz polaków, którzy potrafili zawalczyć i zjednoczyć się w walce przeciw najeźdzcy czego przykładem jest Potop.
-- W potopie widoczna jest idea Sienkiewicza "Ku pokrzepieniu serc", która miała wesprzeć Polaków w trudnych dla nich chwilach
-- Jednym z najważniejszym wydarzeń historycznych jest obrona jasnej góry, która miała wielkie znaczenie w obronie przeciw szwedom. Dzięki Babiniczowi wybitnej jednostce udaje sie obronić 
+- W potopie widoczna jest idea Sienkiewicza **"Ku pokrzepieniu serc"**, która miała wesprzeć Polaków w trudnych dla nich chwilach
+- Jednym z najważniejszym wydarzeń historycznych jest obrona jasnej góry, która miała wielkie znaczenie w obronie przeciw **szwedom**. Dzięki Babiniczowi wybitnej jednostce udaje sie obronić 
 - Sienkewicz miał konkretny cel, pokazać te części historii, które mogłyby dać otuche polakom
+- Jednym z waznych wydarzen jest **Obrona częstochowy**
+- Historyczny obraz Jana Kazimierza
 
 
 ### KONTEKSTY
@@ -68,3 +86,17 @@ BALLADYNA
 
 68. Literacki wizerunek szlachcica sarmaty. Omów zagadnienie na podstawie Potopu Henryka Sienkiewicza. W swojej odpowiedzi uwzględnij również wybrany kontekst
 https://poezja.org/wz/interpretacja/5518/Literacki_wizerunek_szlachcica_sarmaty_Omow_zagadnienie_na_podstawie_Potopu_Henr
+
+
+
+
+
+ # **Wydarzenie Historyczne**
+
+- Atak szwedów na polske (Potop szwedzki)-
+- **Ucieczka Jana Kazimierza na Śląsk i wydanie W Opolu (20 listopada 1655) uniwersału wzywającego naród Polski do walki ze Szwedami**
+- Obrona częstochowy
+
+
+
+Idealizacja - Bohaterowie często idealizowani aby pokrzepić innych. Przykładem takiej idealizacji jest idealizacja postawy Jana Kazimierza W Potopie Henryka Sienkiewicza. Bohater w potopie jest przedstawiany jako wladca Idealny. Dbający  o swój naród jak ojciec o swoje dzieci. Docenia on wszelkie dobro i karci zło jakie się jawi. Jest też królem chrześcijańskim, który co noc modli się o swoje państwo jak i w trakcie utworu oddaje opieke nad państwem Maryji, matce Jezusa. Docenia on też starania na przykład poprzez wybaczenie grzechów Andrzejowi Kmicicowi. 
